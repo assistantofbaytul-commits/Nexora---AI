@@ -1,1 +1,1 @@
-# Nexora---AI
+# Nexora-AI
